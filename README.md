@@ -1,2 +1,1 @@
 # TeenageYummyYellowMen
-# xx is ghey
